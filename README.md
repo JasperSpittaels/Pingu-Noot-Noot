@@ -1,1 +1,1 @@
-<h1><strong>=========Pingu=Noot=Noot=======Download---></strong></h1>
+<h1><strong>=========Pingu=Noot=Noot======Download---></strong></h1>
